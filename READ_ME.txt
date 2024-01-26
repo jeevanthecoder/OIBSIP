@@ -7,3 +7,7 @@ So I'm providing the drive link for the complete video : https://drive.google.co
 
 My LinkedIn Post link : https://www.linkedin.com/posts/jeevan-h-b779ba229_javadevelopment-internshipupdate-oasisinfobyte-activity-7156664700942848001-rKA8?utm_source=share&utm_medium=member_desktop
 
+I've also provided the QR Code for the Main Video.
+
+Thank you,
+Jeevan H
