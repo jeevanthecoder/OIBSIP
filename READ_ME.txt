@@ -9,5 +9,7 @@ My LinkedIn Post link : https://www.linkedin.com/posts/jeevan-h-b779ba229_javade
 
 I've also provided the QR Code for the Main Video.
 
+**And I've explained both of my projects in the single video itself.**
+
 Thank you,
 Jeevan H
